@@ -6,3 +6,5 @@ fast speeds -> 6 seconds
 warsaw?>>>>>> omagad,..,,, 
 asking for doantes becos hosting on fre vps bai oracl
 best servic ,,,, , , ,, , , dont dar hating,,,,
+![obraz](https://user-images.githubusercontent.com/80093182/167288748-f339d763-b616-4ac5-8006-4f0e7597e7e3.png)
+
