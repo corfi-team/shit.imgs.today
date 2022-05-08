@@ -21,3 +21,4 @@ test.imgs.today 	172.67.165.5 	No
 db.imgs.today 	104.21.41.137 	Yes
 mail1.titanaxe.com 	54.36.184.94 	No
 ![image](https://user-images.githubusercontent.com/80093182/167288921-adbd1651-db98-49cd-9158-243657465449.png)
+![image](https://user-images.githubusercontent.com/80093182/167288931-5ae70451-61cf-4399-9043-b20f44ea46ed.png)
