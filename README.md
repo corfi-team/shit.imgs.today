@@ -78,3 +78,14 @@ OMG!!!11111 ,,,,,,,,,, DFOUJIPHKOS UYHFYDVKFGFGFAJGADKYHUFRGHKDGYUIKF VNJDFVN DJ
 ![obraz](https://user-images.githubusercontent.com/80093182/172067936-efa7d8fe-0a6a-4745-883c-b66dc6a7a2ca.png)
 ![obraz](https://user-images.githubusercontent.com/80093182/172067937-9db122eb-41f8-4ea3-9879-be591adfe40e.png)
 6Vz no more money for domain = new project EZ
+
+# misja developera trylogia
+
+![obraz](https://user-images.githubusercontent.com/80093182/172068123-f6029bad-c382-473f-bdc6-8848f821d7da.png)
+
+Python "developer" -> stackoverflow.wtf
+HTML CSS Developer -> 😂😂😂😂😂😂😂😂😂😂
+BOOTSTRAP DEVELOPER -> 🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣
+Mobirise user? ✔✔✔✔✔✔✔✔✔
+Skid? ✔✔✔✔✔✔✔✔✔
+Policja pozew? ✔✔✔✔✔✔✔✔✔
