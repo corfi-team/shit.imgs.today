@@ -67,3 +67,6 @@ https://imgs.today/react
 
 ![obraz](https://user-images.githubusercontent.com/80093182/172067870-f18f93ab-7e05-4a33-9e65-c14e234d9fd0.png)
 
+OMG!!!11111 ,,,,,,,,,, DFOUJIPHKOS UYHFYDVKFGFGFAJGADKYHUFRGHKDGYUIKF VNJDFVN DJ NFBNVJEFGH VFENBVJ BROKEN RULES 
+
+![obraz](https://user-images.githubusercontent.com/80093182/172067885-cebcef68-8754-4582-ad68-1049ed82a1f8.png)
