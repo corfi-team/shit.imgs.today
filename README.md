@@ -50,3 +50,7 @@ huoments wlh
 
 ![obraz](https://user-images.githubusercontent.com/80093182/172021565-8017ddd1-f30c-4f9a-9744-bbbc85a965c1.png)
 
+![obraz](https://user-images.githubusercontent.com/80093182/172067349-e1f2a639-a033-4e3e-a33e-b21b089d2d4b.png)
+![obraz](https://user-images.githubusercontent.com/80093182/172067348-777559a6-c271-4abe-95e7-07438b67c8ac.png)
+![obraz](https://user-images.githubusercontent.com/80093182/172067351-366d9634-1543-488f-a121-e23e949d8a4c.png)
+![obraz](https://user-images.githubusercontent.com/80093182/172067350-8cb9cf01-ad26-42b3-8116-ff9b32765a7b.png)
