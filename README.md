@@ -89,3 +89,6 @@ BOOTSTRAP DEVELOPER -> 🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣�
 Mobirise user? ✔✔✔✔✔✔✔✔✔
 Skid? ✔✔✔✔✔✔✔✔✔
 Policja pozew? ✔✔✔✔✔✔✔✔✔
+
+# legal notice
+this repo was created for demo purposes only!!!!!!!!!!!! no harras just jokings,.
